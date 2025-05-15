@@ -24,7 +24,7 @@ I'm a dedicated learner who thrives at the intersection of technology, logic, an
 ## Connect with Me
 
 - LinkedIn: [https://www.linkedin.com/in/makb183]
-- Personal Website: [mkbtech.com](https://mkbtech.com)
+- Personal Website: [makbtech.com](https://mkbtech.com)
 
 ---
 
